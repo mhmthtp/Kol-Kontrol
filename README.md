@@ -1,2 +1,2 @@
 # Kol-Kontrol
-**Deneme 1 deneme**
+** Kodun amacı Android clientten gelen veriyidvasdç bdfşvnadfivndf sdvnaşkvnv anşsdnvşanvadif ndf fggnefibnefbneirbnv**
