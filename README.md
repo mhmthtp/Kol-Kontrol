@@ -1,2 +1,1 @@
 # Kol-Kontrol
-dfbdfbdfbdb
